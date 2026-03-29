@@ -1,1 +1,0 @@
-# vaderpaste-mirror
